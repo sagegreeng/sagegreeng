@@ -1,16 +1,13 @@
-## Hi there 👋
+## Hello
 
-<!--
-**sagegreeng/sagegreeng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![mikey hello](https://github.com/user-attachments/assets/27fea892-aec4-41ff-8adf-e7e748f78e57)
 
-Here are some ideas to get you started:
+If you wanna chat feel free to come up to me. I'm sometimes of tab so w2i
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+c+h is always allowed unless specified differently
+
+If I'm with a friend please ask if you can join convo
+
+SHIPS INT!!!
+
+For more about me read straw page
