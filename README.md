@@ -6,6 +6,13 @@ If you wanna chat feel free to come up to me. I'm sometimes of tab so w2i
 
 c+h is always allowed unless specified differently
 
+MAIN FANDOMS
+-Eddsworld
+-GTA V
+-Postal 2 and 1997
+-QSMP
+-more on strawpage
+
 SHIPS INT!!!
 
 ![eggsworld](https://github.com/user-attachments/assets/41f0c04f-fe77-420c-a57c-cd1a82ebf467)
