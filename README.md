@@ -6,10 +6,9 @@ If you wanna chat feel free to come up to me. I'm sometimes of tab so w2i
 c+h is always allowed unless specified differently
 
 
-Main fandoms
+Main fandoms: GTA V, Postal, Eddsworld and Red Dead Redemption 2
 
--Eddsworld
-
--GTA V
-
--Postal
+Social media:
+[Reddit](https://www.reddit.com/user/sagegreeng/),
+[Tumblr](https://www.tumblr.com/sagegreeng),
+[Art Fight](https://artfight.net/~SageGreenG)
