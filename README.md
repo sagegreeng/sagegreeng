@@ -1,10 +1,10 @@
-## Hello
+<img width="736" height="414" alt="download (1)" src="https://github.com/user-attachments/assets/1ab002d4-6c9d-4d59-b0d6-47c620aabed8" />
 
-![gtabanner](<img width="1024" height="576" alt="image" src="https://github.com/user-attachments/assets/447cdba7-24ba-46a1-a13b-1188512f42bb" />)
 
 If you wanna chat feel free to come up to me. I'm sometimes of tab so w2i
 
 c+h is always allowed unless specified differently
+
 
 Main fandoms
 
@@ -12,8 +12,4 @@ Main fandoms
 
 -GTA V
 
--Postal 2 and 1997
-
--QSMP
-
--more on strawpage
+-Postal
