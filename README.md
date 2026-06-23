@@ -5,10 +5,11 @@ If you wanna chat feel free to come up to me. I'm sometimes of tab so w2i. I spe
 
 c+h is always allowed unless specified differently
 
-
 Main fandoms: GTA V, Postal, Eddsworld and Red Dead Redemption 2
 
 Social media:
 [Reddit](https://www.reddit.com/user/sagegreeng/),
 [Tumblr](https://www.tumblr.com/sagegreeng),
 [Art Fight](https://artfight.net/~SageGreenG)
+
+<img width="168" height="136" alt="image" src="https://github.com/user-attachments/assets/ea935a1b-3b1b-4dd7-9458-0f6ffa99b98e" />
